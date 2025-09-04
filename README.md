@@ -1,2 +1,2 @@
-# flutersh7y
-flutershy
+# flutershy
+my litlle pony
